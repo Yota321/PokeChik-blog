@@ -1,1 +1,0 @@
-# PokeChik-blog
